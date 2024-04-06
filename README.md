@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @2006NicoledosSantos25
+- 👋 Hi, I’m nicole-niih2006
 - 👀 I’m interested in fazer agronomia ou medicina veterinária
 - 🌱 I’m currently learning 1°ano do Ensino Médio
 -💞️ I’m looking to collaborate on ...
