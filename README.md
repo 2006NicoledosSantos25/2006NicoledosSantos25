@@ -1,5 +1,5 @@
 - 👋 Hi, I’m nicole-niih2006
-- 👀 I’m interested in fazer agronomia ou medicina veterinária
+- 👀 I’m interested in ir para o exercito
 - 🌱 I’m currently learning 1°ano do Ensino Médio
 -💞️ I’m looking to collaborate on ...
 -
